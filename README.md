@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @Mohamad-ctrl
 - 👀 I’m interested in web desing and programming in general
-- 🌱 I’m currently studying in high school 
 - 📫 You can reach me on discord(Spyro#6969) or insta(mohamad.wpr)
