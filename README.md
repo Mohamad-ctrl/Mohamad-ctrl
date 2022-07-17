@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Mohamad-ctrl
 - 👀 I’m interested in web desing and programming in general
-- 📫 You can reach me on discord(Spyro#6969) or insta(mohamad.wpr)
+- 📫 You can reach me on discord(Spyro#8408) or insta(ft_spyro)
