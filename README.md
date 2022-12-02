@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Mohamad-ctrl
+- 👋 Hi, I’m Mohamad Sharif
 - 👀 I’m interested in web desing and programming in general
-- 📫 You can reach me on discord(Spyro#8408) or insta(ft_spyro)
+- 📫 You can reach me by email (mohammadalsharif03@gmail.com)
